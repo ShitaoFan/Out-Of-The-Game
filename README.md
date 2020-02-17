@@ -3,7 +3,6 @@ Out of the Game is essentially the Inception of video games, with lots of game-w
 
 Out of the Game is created for a month, by Shitao Fan and Yun Hao as a project for the Glasgow School of Art.
 
-                                             ●
 
 "It’s great fun discovering and experimenting with the various objects in the room and there are some great little surprises throughout."
 
